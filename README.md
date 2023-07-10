@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on AI Programming in Bioinformatics
 - 📫 How to reach me 
 http://amirshams.ir/
-skype:amir-shams?call
 www.linkedin.com/in/amir-shams
 https://www.instagram.com/dr_amirshams
 https://scholar.google.com/citations?user=LZSsEQYAAAAJ&hl
